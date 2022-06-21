@@ -103,7 +103,6 @@ Welcome to the interior of the "讹兽". Beneath the curved glass walls, small o
 
 ### 3. Attempts at a main scene:
 
-https://user-images.githubusercontent.com/92038037/174838270-3ae97194-aeb3-4b43-ae22-a2634fad38bd.MOV
 ![IMG_4280](https://user-images.githubusercontent.com/92038037/174838347-90e2e689-f44a-4de5-beb0-c3a6b96d636b.PNG)
 ![IMG_4281](https://user-images.githubusercontent.com/92038037/174838384-67f126e7-5132-414d-8f5c-f9ab37452546.PNG)
 
